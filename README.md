@@ -1,6 +1,8 @@
 # dumbo-disney-parody-book-ends
 DumboDisney Proudly Presents A Presentation Presently Presented By Jumbo the Black Elephantess, in a land under the Kingdom.
 
+None of the bitches up top need saving. But down here, in these kingdoms, we all need saving.
+
 In the dark kingdom the men search for women to save. French girls reading books has become a problem. They read and their thoughts create demons that attack the village men. Off With These DumboDisney Princesses Heads!
 
 Other girls like Belle, French girls, exist in this realm, surrounded by thistles and spikes. Men cannot get to them through the bush. THey are isolated and solitary. They read all day.
