@@ -18,3 +18,13 @@ He takes his sword and strikes the book out of her hands.
 The book flys up right towards his face with evil magic and knocks him down.
 
 He strikes at the book as it tries to eat his face off.
+
+He stabs the book until it stops moving and then swings back and removes the girl's head.
+
+Men and woman sit in parties inside a bar and they are drinking and singing loudly, songs.
+
+They are drunk and talking about the day.
+
+A woman's head sits in the middle of the table.
+
+Small little thought bubble still leaving her head.
